@@ -1,6 +1,23 @@
 # YouTube-Botter-Beta-V1.0
 This is a YouTube viewer botter! Beta V.0.0.1 by Razetro
- ____  __  __  ____  _  _  _   _    __    ___  _  _ 
-(_  _)(  )(  )(  _ \( )/ )( )_( )  /__\  / __)( )/ )
-  )(   )(__)(  )   / )  (  ) _ (  /(__)\( (__  )  ( 
- (__) (______)(_)\_)(_)\_)(_) (_)(__)(__)\___)(_)\_)
+
+asd
+as
+d
+as
+das
+d
+as
+d
+as
+da
+sd
+asd
+
+asd
+as
+d
+asd
+as
+d
+as
